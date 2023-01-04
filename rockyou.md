@@ -10,6 +10,8 @@ Kicking your can all over the place, singin'
 We will, we will rock you
 We will, we will rock you
 ## Verse 2
+We will, we will rock you
+We will, we will rock you
 
 ## Chorus 2
 
